@@ -7,4 +7,4 @@
 - 💬 Ask me about how i am doing
 - 📫 How to reach me: i don't know
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: my favorite food is happy meal
+- ⚡ Fun fact: ...
